@@ -48,7 +48,7 @@ Could not find a SA video
 
 ![Braai mielies](https://cdn.foodloversmarket.co.za/wp-content/uploads/20231212143322/1-4.png)
 
-Typically South African use these methods:
+Typically South Africans use these methods:
 
 * Leaves (husks) on:
 The mielie steams in its own moisture while picking up a gentle smoky flavour. This keeps it juicy and tender and is very forgiving over moderate heat.
