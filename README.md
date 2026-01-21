@@ -12,3 +12,9 @@
 ## 'Pap' and 'sous'
 
 [![Watch the video](https://img.youtube.com/vi/34F6oa5Ho5k/0.jpg)](https://www.youtube.com/watch?v=34F6oa5Ho5k)
+
+... now you have the building blocks for 'paptert'
+
+## 'Paptert'
+
+[![Watch the video](https://img.youtube.com/vi/r1xa8Nq3f4w/0.jpg)](https://www.youtube.com/watch?v=r1xa8Nq3f4w)
