@@ -1,5 +1,7 @@
 # Swiss_SA_food_ideas
 
+`These are just for inspiration, as far as I know none of these dishes needs any strict recipes and everyone has some variation when it comes to these.`
+
 ## Braai broodjies
 
 [![Watch the video](https://img.youtube.com/vi/xloJ-UBd3dw/0.jpg)](https://www.youtube.com/watch?v=xloJ-UBd3dw)
