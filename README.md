@@ -19,4 +19,7 @@
 
 [![Watch the video](https://img.youtube.com/vi/r1xa8Nq3f4w/0.jpg)](https://www.youtube.com/watch?v=r1xa8Nq3f4w)
 
-* A lot of south african omnivores leave the bacon out of this 
+* A lot of south african omnivores leave the bacon out of this
+* You can use any kind of souce for this, like the souce in the 'Pap' and 'sous' video. You are making a kind of lasagna with 'pap' and 'sous', with melted cheese on the top.
+
+   
