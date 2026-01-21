@@ -18,3 +18,5 @@
 ## 'Paptert'
 
 [![Watch the video](https://img.youtube.com/vi/r1xa8Nq3f4w/0.jpg)](https://www.youtube.com/watch?v=r1xa8Nq3f4w)
+
+* A lot of south african omnivores leave the bacon out of this 
