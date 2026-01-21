@@ -78,4 +78,4 @@ Atchar is a pickled condiment, most commonly made from green mangoes, though mix
 
 ## Don't burn
 
-![Burnshield](https://www.dischem.co.za/burnshield-hydrogel-50ml-111?srsltid=AfmBOorfk937jgBwV1PV2wajFgHIySD_kELu-l7kUhfPHMgvYhAnf41o)
+![Burnshield]([https://www.dischem.co.za/burnshield-hydrogel-50ml-111?srsltid=AfmBOorfk937jgBwV1PV2wajFgHIySD_kELu-l7kUhfPHMgvYhAnf41o](https://sse-20517.kxcdn.com/web/image/product.product/440538/image_1024/Burnshield%20Hydrogel%20Squeeze%20Bottle%20-%2050ml?unique=b71e972))
