@@ -32,3 +32,10 @@ Aromat is a savoury all-purpose seasoning made primarily from salt, monosodium g
 
 In South Africa, Aromat is more than just a seasoning—it’s a pantry staple and cultural shorthand for comfort food. It’s commonly used on popcorn, chips (fries), eggs, avocado, roast vegetables, braaied meat, and simple dishes like ember-roasted onions. Many South Africans grow up with it, and its distinctive umami-rich flavour is closely associated with home cooking, braais, camping, and outdoor fire food. Saying “add Aromat” often implies a specific, familiar taste rather than just generic seasoning.
 
+## Vegetable 'sosaties' on the braai
+
+[![Watch the video](https://img.youtube.com/vi/RsThTMk-VGM/0.jpg)](https://www.youtube.com/watch?v=RsThTMk-VGM)
+
+Could not find a SA video
+
+
