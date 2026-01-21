@@ -38,4 +38,6 @@ In South Africa, Aromat is more than just a seasoning—it’s a pantry staple a
 
 Could not find a SA video
 
+## Other vegatables that work well at a braai
 
+![mushrooms](https://www.thespruceeats.com/thmb/5qowlakCTUAO2eFhEqSd3VnTRbQ=/750x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/high-angle-view-of-portobello-mushrooms-on-barbeque-grill-577159851-59a5d4159abed50011e65710.jpg)
