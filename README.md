@@ -76,6 +76,6 @@ Chakalaka is a spicy vegetable relish made from onions, tomatoes, carrots, peppe
 
 Atchar is a pickled condiment, most commonly made from green mangoes, though mixed vegetable versions exist. It comes from South Africa’s Indian communities, especially in KwaZulu-Natal. Atchar is intensely flavoured: salty, sour, spicy, and oily, meant to be used in small amounts. It’s eaten with curries, stews, braai food, or even plain bread, where a little goes a long way.
 
-## Don't step on to embers
+## Don't burn
 
-![Burnshield](https://www.dischem.co.za/api/catalog/product/6/4/644bbdff34e5d_6007645000123.jpg?width=400&height=400&store=default&image-type=image)
+![Burnshield](https://www.dischem.co.za/burnshield-hydrogel-50ml-111?srsltid=AfmBOorfk937jgBwV1PV2wajFgHIySD_kELu-l7kUhfPHMgvYhAnf41o)
