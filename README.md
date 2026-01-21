@@ -4,19 +4,22 @@ These are just for inspiration, as far as I know none of these dishes needs any 
 
 ## Braai broodjies
 
+video
 [![Watch the video](https://img.youtube.com/vi/xloJ-UBd3dw/0.jpg)](https://www.youtube.com/watch?v=xloJ-UBd3dw)
 
-
+video
 [![Watch the video](https://img.youtube.com/vi/eQlnMQB78gw/0.jpg)](https://www.youtube.com/watch?v=eQlnMQB78gw)
 
 ## 'Pap' and 'sous'
 
+video
 [![Watch the video](https://img.youtube.com/vi/34F6oa5Ho5k/0.jpg)](https://www.youtube.com/watch?v=34F6oa5Ho5k)
 
 ... now you have the building blocks for 'paptert'
 
 ## 'Paptert'
 
+video
 [![Watch the video](https://img.youtube.com/vi/r1xa8Nq3f4w/0.jpg)](https://www.youtube.com/watch?v=r1xa8Nq3f4w)
 
 * A lot of south african omnivores leave the bacon out of this
@@ -34,6 +37,7 @@ In South Africa, Aromat is more than just a seasoning—it’s a pantry staple a
 
 ## Vegetable 'sosaties' on the braai
 
+video
 [![Watch the video](https://img.youtube.com/vi/RsThTMk-VGM/0.jpg)](https://www.youtube.com/watch?v=RsThTMk-VGM)
 
 Could not find a SA video
@@ -59,6 +63,7 @@ In all cases, slow heat is key. The mielies are ready when the kernels are tende
 
 ## Camp fire baked potatoes
 
+video
 [![Watch the video](https://img.youtube.com/vi/jSFWMIXdk2s/0.jpg)](https://www.youtube.com/watch?v=jSFWMIXdk2s)
 
 ## South African condiments
