@@ -46,7 +46,7 @@ Could not find a SA video
 
 Typically South African use these methods:
 
-*Leaves (husks) on:
+* Leaves (husks) on:
 The mielie steams in its own moisture while picking up a gentle smoky flavour. This keeps it juicy and tender and is very forgiving over moderate heat.
 
 * Wrapped in tinfoil:
