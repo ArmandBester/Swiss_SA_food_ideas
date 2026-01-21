@@ -56,3 +56,19 @@ Gives the most even cooking and prevents burning, especially over longer or hott
 Best over slow, indirect heat, turning often. This gives more char and a stronger braai flavour but needs attention to avoid drying out.
 
 In all cases, slow heat is key. The mielies are ready when the kernels are tender and lightly caramelised, usually after about 20–30 minutes, depending on heat and size. Remember the Aromat.
+
+## Camp fire baked potatoes
+
+[![Watch the video](https://img.youtube.com/vi/jSFWMIXdk2s/0.jpg)](https://www.youtube.com/watch?v=jSFWMIXdk2s)
+
+## South African condiments
+
+* Chakalaka
+
+Chakalaka is a spicy vegetable relish made from onions, tomatoes, carrots, peppers, beans, and chilli, cooked down with curry spices. It originated in townships and mine hostels and is now a national staple. Chakalaka is naturally vegan, hearty, and often served warm or at room temperature alongside a braai, pap (mielie meal porridge), samp and beans, or bread. It’s less a “sauce” and more a side-condiment — spooned generously rather than drizzled — adding heat, acidity, and texture.
+
+* Atchar (Achaar)
+
+Atchar is a pickled condiment, most commonly made from green mangoes, though mixed vegetable versions exist. It comes from South Africa’s Indian communities, especially in KwaZulu-Natal. Atchar is intensely flavoured: salty, sour, spicy, and oily, meant to be used in small amounts. It’s eaten with curries, stews, braai food, or even plain bread, where a little goes a long way.
+
+
