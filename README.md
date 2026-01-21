@@ -41,3 +41,17 @@ Could not find a SA video
 ## Other vegatables that work well at a braai
 
 ![mushrooms](https://www.thespruceeats.com/thmb/5qowlakCTUAO2eFhEqSd3VnTRbQ=/750x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/high-angle-view-of-portobello-mushrooms-on-barbeque-grill-577159851-59a5d4159abed50011e65710.jpg)
+
+![Braai mielies](https://cdn.foodloversmarket.co.za/wp-content/uploads/20231212143322/1-4.png)
+
+* Typically South African use these methods:
+Leaves (husks) on:
+The mielie steams in its own moisture while picking up a gentle smoky flavour. This keeps it juicy and tender and is very forgiving over moderate heat.
+
+* Wrapped in tinfoil:
+Gives the most even cooking and prevents burning, especially over longer or hotter fires. It’s good if you want very soft kernels or are adding butter, garlic, or seasoning inside the foil.
+
+* Bare on the grid (no husks, no foil):
+Best over slow, indirect heat, turning often. This gives more char and a stronger braai flavour but needs attention to avoid drying out.
+
+In all cases, slow heat is key. The mielies are ready when the kernels are tender and lightly caramelised, usually after about 20–30 minutes, depending on heat and size. Remember the Aromat.
