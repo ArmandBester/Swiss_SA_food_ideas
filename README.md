@@ -1,6 +1,6 @@
-# Swiss_SA_food_ideas
+# Swiss SA food ideas
 
-`These are just for inspiration, as far as I know none of these dishes needs any strict recipes and everyone has some variation when it comes to these.`
+These are just for inspiration, as far as I know none of these dishes needs any strict recipes and everyone has some variation when it comes to these. Some also not traditionally from South Africa, but still popular - one perspective.
 
 ## Braai broodjies
 
